@@ -5,4 +5,4 @@
 ## With :heart: by
 - Narendra Kamath G
 - E-mail: [Siddgarth.gautam2019@vitbhopal.ac.in](mailto:Siddharth.gautam2019@vitbhopal.ac.in)
-- LinkedIn: [Siddharth gautam](www.linkedin.com/in/siddharthgautam04)
+
