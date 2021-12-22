@@ -4,5 +4,5 @@
 
 ## With :heart: by
 - Narendra Kamath G
-- E-mail: [narendrakamathg@gmail.com](mailto:narendrakamathg@gmail.com)
-- LinkedIn: [Narendra Kamath G](https://in.linkedin.com/in/narendra-kamath-g-50158230)
+- E-mail: [Siddgarth.gautam2019@vitbhopal.ac.in](mailto:Siddharth.gautam2019@vitbhopal.ac.in)
+- LinkedIn: [Siddharth gautam](www.linkedin.com/in/siddharthgautam04)
